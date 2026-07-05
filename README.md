@@ -1,6 +1,6 @@
 <div align="center">
 
-![]([https://pixels.crd.co/assets/images/gallery24/c4cc987b.gif?v=29416114](https://pixels.crd.co/assets/images/gallery12/a3b91320.gif?v=29416114))
+![](https://i.redd.it/t5js8chddi751.jpg)
 
 **mae**　iwc　*15*
 
