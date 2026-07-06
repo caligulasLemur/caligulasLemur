@@ -26,12 +26,6 @@
 
 𓎟𓎟
 
-*s*ensitivve sou*l*
-
-<sup> **unfortunately** </sup>
-
-𓎟𓎟
-
 *b*ut<ins>tons</ins>
 
 <sub>![](https://sewerwolfx.neocities.org/graphics/imvubuttons/12rainbow/8.gif) ![](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/8.gif) ![](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/38.gif) ![](https://64.media.tumblr.com/7c90dcde7f999678aae39be6ca832bb6/a26eff35141a28be-c2/s75x75_c1/82672cb4c00e6ab194e74f1e6d18fd4c49c17ebd.gifv) ![](https://64.media.tumblr.com/f8ab516a8fbac88bccad2c042db226a3/cd56d1ec2dbf8df9-74/s75x75_c1/db84edff9b41d7f77e99f55ce60f286b92c8a374.gifv) ![](https://64.media.tumblr.com/a9ae4460f27b739ddce5ff9a18fab49b/95388f36c5b712c8-28/s75x75_c1/aef24a2aa39c51d0a37c8bb1f8da59280c04e35e.gifv)</sub>
